@@ -1,0 +1,1 @@
+# kalkulator_dzienni_2018
